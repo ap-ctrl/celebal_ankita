@@ -1,2 +1,2 @@
-My Celebal AssignmentS Repository
+My Celebal Assignments Repository
 
